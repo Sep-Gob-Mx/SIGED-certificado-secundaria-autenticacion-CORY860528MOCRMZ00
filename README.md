@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CORY860528MOCRMZ00
+CORY860528MOCRMZ00
